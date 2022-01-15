@@ -8,6 +8,10 @@ Kitsch succulents poutine, retro dreamcatcher shaman authentic mlkshk waistcoat 
 
 ## Purpose
 
+Blog hell of street art jean shorts offal tbh. Knausgaard neutra man braid air plant organic snackwave. 
+
 ## Deployment 
+
+Drinking vinegar banh mi synth kitsch enamel pin cold-pressed messenger bag try-hard direct trade swag tote bag williamsburg coloring book.
 
 ## How to contribute
