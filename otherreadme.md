@@ -8,7 +8,7 @@ Kitsch succulents poutine, retro dreamcatcher shaman authentic mlkshk waistcoat 
 
 ## Purpose
 
-Blog hell of street art jean shorts offal tbh. Knausgaard neutra man braid air plant organic snackwave. Adding a line for rebasing example.
+Blog hell of street art jean shorts offal tbh. Knausgaard neutra man braid air plant organic snackwave. Adding a line for rebasing example, then more changes from myfeature branch too.
 
 ## Deployment 
 
