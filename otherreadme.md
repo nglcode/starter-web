@@ -16,4 +16,4 @@ Drinking vinegar banh mi synth kitsch enamel pin cold-pressed messenger bag try-
 
 ## How to contribute
 
-Git Training
+Schlitz bitters helvetica snackwave etsy kogi vegan edison bulb squid.
